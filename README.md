@@ -7,6 +7,6 @@ Team
 
 1. Nathanael Ato Asaam
 2. GIDEON MAKUI
-3. Senanu King Dovoh
+3. Tohionon Fabrice
 4. Akligo Selorm Cyril Komla
 
